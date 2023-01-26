@@ -1,7 +1,4 @@
-### Hi there 👋
-
-<!--
-**RubyRedThomas/RubyRedThomas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+sandrathomas155@gmail.com ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
@@ -14,3 +11,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+I'm looking to collaborate how to get my rewards from gamesplated in Google store app and developers like unity and zendeska and how to redeem them I'm other from othe countries codes or globally 
